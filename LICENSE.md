@@ -1,4 +1,4 @@
-#  
+#  secret Scripts for natural disaster survival is the best natural disaster survival Script, featuring infinite resources and auto-heal. Safe and
 
 
 
